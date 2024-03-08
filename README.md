@@ -1,1 +1,0 @@
-# gguryuryu.github.io
